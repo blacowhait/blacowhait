@@ -1,4 +1,4 @@
-![Image](https://gist.github.com/user-attachments/assets/b1150c57-776a-4ba1-b6a6-924f4b209c8d)
+![shigaraki-my-hero-academia](https://github.com/user-attachments/assets/22bf6c84-6b20-4a13-8dbd-077b64400c37)
 
 <!--
 ## Hi there 👋
