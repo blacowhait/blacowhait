@@ -1,4 +1,4 @@
-<img align="right" alt="Coding" width="400" src="https://tenor.com/view/shigaraki-my-hero-academia-mha-villain-laugh-gif-13556722326891871473">
+<img align="center" alt="Coding" width="400" src="https://gist.github.com/user-attachments/assets/b1150c57-776a-4ba1-b6a6-924f4b209c8d">
 
 <!--
 ## Hi there 👋
